@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Ryan Alexandre Moura Nogueira
